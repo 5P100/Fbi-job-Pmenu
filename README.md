@@ -2,7 +2,7 @@ Fbi job Pmenu
 
 🔗Social Medias
 ---------------------------------------------
-5% Leaks and Dev ➜ discord.gg/wuHPzTjwmB
+5% Leaks and Dev ➜ https://discord.gg/8akQqxUMtq
 
 📌Credits
 ----------------------------------------------
